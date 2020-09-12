@@ -15,7 +15,4 @@ e owpie rpowier w
 e r[powei r[powier 
 wepo riw[epori 
 wepro iw[epori we
-r wer wer ]]]]
-pooiu4 tpo3iu4t poiu34t
-32p[ oti23[pto
-3t] 324tp i]
+r wer wer ]]]]98740958675098347506983476 09450968 73409568 703948 67045
